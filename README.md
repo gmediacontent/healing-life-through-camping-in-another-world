@@ -1,1 +1,2 @@
-# healing-life-through-camping-in-another-world
+# Healing Life Through Camping In Another World
+Le chef étoilé Kang Hyun s’est caché dans une campagne tranquille après avoir perdu son sens du goût où il a trouvé un chemin vers un autre monde dans la maison de son grand-père. Comme il était de toute façon en fuite, il prévoyait de profiter d’une vie de camp relaxante, mais… les gens de l’autre monde continuent de s’intéresser de plus en plus à Kang Hyun ! Kang Hyun sera-t-il vraiment capable de guérir en vivant une vie lente ?
